@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @menaneme
+- 👀 I’m interested in Cardano
+- 🌱 I’m currently learning Arabic
+- 💞️ I’m looking to collaborate on Cardano
